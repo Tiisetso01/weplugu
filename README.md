@@ -1,1 +1,1 @@
-# weplugu
+# wePlugU Privacy Policy
